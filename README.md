@@ -1,4 +1,5 @@
-### Hey there, I am Bass-PHOX
-I am a 20 year old floof with a knack for code. though dont expect anything amazing since Im a middleschool dropout.
-I like modding stuff in particular.
-My pronouns are `She/Her`
+### Hi, I'm Emily.
+I'm a 21 year old Trangender furry, I have a knack for code.
+I like anything from useful software tweaks to custom game modes.
+I particularly like Mario Kart Wii mods.
+My pronouns are `She/Her`, however, I am also fine with `They/Them`
